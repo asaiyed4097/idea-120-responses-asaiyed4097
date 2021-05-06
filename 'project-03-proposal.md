@@ -1,0 +1,1 @@
+For my twine project I will create senerio where you have to make your way through a day as a lion in the jungle. I will set you up in situations where you will decide what you will do or want to eat, at the end of the game you should have had a sucessful hunt and make it back home.
