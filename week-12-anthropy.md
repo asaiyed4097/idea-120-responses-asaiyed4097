@@ -1,0 +1,9 @@
+Divesity
+
+Video games has always been a big partof my life, it takes up a majority of my free time because I am very passionateabout playing.  It is very interesting andentertaining to see what content creators are able to come up with. Since weare surrounded by them in our phones, computers, tvs, we are needing morecontent because we are seeing more of it than ever.
+
+One of the first things which comes tomind when thinking of how the videogame industry can benefit when a largeramount of voices are participating, is that it becomes more diverse. Many newideas and experiences are passed around which will in turn make everyone else’s experiencemore pleasurable. New content causes a domino effect, as it will inspire morenew ideas thus allowing us to experience things we may not have been able to. Newideas stimulate more new ideas.  
+
+Diversifying the audience also allows fordiversification of content creators. The more content creators there are, thelarger audience it will reach. I feel as of right now a majority of videogames arecreated by men for men, we need to encourage more diversity. The stigma that videogames are supposed to be for males needs to be stopped, this is hindering theplatform from growing into what it could become. The more participants thereare the more the industry will grow.
+
+Being diverse will also improve otherforms of media and art, new perspectives should always be welcomed to phase outnorms. Many believe that just because more people are participating, it willnot improve the quality of the games. I disagree with the claim because the morequantity you have the better the quality will also get better because we will not have a largerfield to choose from. The more games there are the niches of certain gamineswhich may not have been created before will also be satisfied.
